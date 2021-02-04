@@ -7,3 +7,4 @@ Holis, soy un ejemplo de GIT para el taller!
 Holisssss voy a laburar! Ojalá no rompa nada :-)
 
 Toy laburando! Yo sí tendría que laburar, no como mi compañery.
+Ola ke ase, yo de lisenzia y bo?
